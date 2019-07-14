@@ -1,2 +1,6 @@
 # hello-world
-just another repository
+
+HI HUMANS 
+
+I LIKE TO PLAY FOOTBALL
+I ENJOY PAINTING AND SKETCHING
